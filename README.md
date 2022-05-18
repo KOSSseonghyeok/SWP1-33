@@ -1,2 +1,2 @@
-20223055 Kimseonghyeok
+ Kimseonghyeok 20223055
 Kookmin Univ.SW
